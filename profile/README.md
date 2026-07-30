@@ -19,3 +19,5 @@ Software products and consulting services that bring clarity and accountability 
 ## Get in touch
 
 Interested in working together? [Contact us](https://appliedaccountability.com/contact) or email [contact@appliedaccountability.com](mailto:contact@appliedaccountability.com).
+
+Find us on [Facebook](https://www.facebook.com/appliedaccountability).
